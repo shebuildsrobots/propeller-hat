@@ -1,4 +1,4 @@
-Make any hat a propeller hat!
+Make any hat a propeller hat! See the video [here](https://www.youtube.com/shorts/sD6R17PELOM).
 
 You will need 4 10mm round magnets, wire (ideally a jewelry header pin), and beads or spacers.
 
